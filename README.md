@@ -11,4 +11,4 @@ Desenvolvedor de software. Gosto de levar um projeto do começo ao fim: entender
 
 Também atendo empresas com sistemas sob medida em [mpsoftwarepro.com](https://mpsoftwarepro.com).
 
-[LinkedIn](https://linkedin.com/in/murilo-pellegrini)
+[LinkedIn](https://www.linkedin.com/in/murilo-machado-dos-santos-pellegrini-572409369/)
